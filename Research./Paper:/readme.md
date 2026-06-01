@@ -1,0 +1,6 @@
+- https://archive.org/details/osf-registrations-kqmdc-v1
+- https://archive.org/details/osf-registrations-fxkhp-v1
+- https://archive.org/details/osf-registrations-uem4x-v1
+- https://archive.org/details/osf-registrations-3mq6k-v1
+- https://archive.org/details/osf-registrations-re8d2-v1
+- 
